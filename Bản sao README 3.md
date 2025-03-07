@@ -1,1 +1,1 @@
-merger vao di
+xam 2
